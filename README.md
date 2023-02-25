@@ -1,4 +1,6 @@
 # backplate-bakeneko65
+Image:https://cdn.discordapp.com/attachments/964166098243178547/1079038317665976351/Screenshot_2023-02-25_205251.png
+
 IF YOU WANT TO MAKE A GB OF THIS KB PM ME: Boss Keebs#5943 on discord
 
 backplate screws incase they gave you wrong lenght https://www.mcmaster.com/93395A196/
