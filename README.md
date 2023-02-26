@@ -1,5 +1,5 @@
 # backplate-bakeneko65
-Image:https://cdn.discordapp.com/attachments/1079034447468429332/1079085810411900968/Screenshot_2023-02-25_235711.png
+Image:https://cdn.discordapp.com/attachments/1079007318429147206/1079314660869816320/bakaneko.png
 
 IF YOU WANT TO MAKE A GB OF THIS KB PM ME: Boss Keebs#5943 on discord
 
