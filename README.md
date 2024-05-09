@@ -16,7 +16,7 @@ You can contact these people to manufacture the keyboard case and backplate: nas
 
 
 [PCB LIST]
-US: https://cannonkeys.com/products/bakeneko65-extra-pcbs?variant=40711868711023    CA:https://alphakeys.ca/products/ciel65-gasket-65-keyboard?currency=USD   EU:https://paramountkeeb.com/products/group-buy-ciel-65-cnc-65-bakeneko-with-weight?variant=43118709539035 
+US: https://cannonkeys.com/products/bakeneko65-extra-pcbs?variant=40711868711023    CA:https://alphakeys.ca/products/ciel65-gasket-65-keyboard?currency=USD
 
 
 
