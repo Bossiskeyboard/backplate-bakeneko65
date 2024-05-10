@@ -13,6 +13,7 @@ I modified the side profiles of the case to be more like a unikorn
 
 # People to contact for manufacturing
 nash.gaojie on discord
+
 gjhelen on discord
 
 
